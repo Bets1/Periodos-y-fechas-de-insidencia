@@ -1,1 +1,0 @@
-# Periodos-y-fechas-de-insidencia
